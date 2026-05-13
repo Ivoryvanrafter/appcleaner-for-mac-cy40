@@ -1,4 +1,4 @@
-
+AppCleaner for macOS best Extension - quick-launch and memory-optimization is the best AppCleaner for macOS extension, featuring quick-launch and memory-optimization. Safe,
 
 
 
